@@ -6,8 +6,9 @@ Evidence is provided here of the following objectives:
 2. Show confidence and skills in oral communications and presentations
 - In Oral communications and Presentation I had given a presentation which is [ICT](https://github.com/Ujjwalsavaliya/ePortfolio/blob/main/ICT/Cybersafety%20%26%20Indigenous%20Australians.pptx).
 3. Work effectively as part of a team
-- Add evidence here.
+- We had done work as a part of team in 2 weeks. 
+- It was a great engagement with my classmates.
 4. Communicate effectively in a professional context
-- Add evidence here.
+- Here is my Professional [video]
 5. Define and demonstrate conflict management and resolution strategies.
 - Add evidence here.
