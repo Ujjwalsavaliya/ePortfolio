@@ -11,4 +11,5 @@ Evidence is provided here of the following objectives:
 4. Communicate effectively in a professional context
 - Here is my Professional [Video Presentation](https://drive.google.com/file/d/1N2Uw3zowNr9xJ7QN-BVQsbPjyMjZ1G3u/view?usp=sharing).
 5. Define and demonstrate conflict management and resolution strategies.
-- Add evidence here.
+- This conflict management skill involves using different tactics depending on the situation, negotiation, and creative thinking. With properly managed conflict, an organization is able to minimize interpersonal issues, enhance client satisfaction, and produce better business outcomes.
+- Conflict resolution can be defined as the informal or formal process that two or more parties use to find a peaceful solution to their dispute.
