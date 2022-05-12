@@ -3,6 +3,7 @@ Evidence is provided here of the following objectives:
 1. Explain communication concepts and strategies
 - We learn this Communication concept in week 1 and in this I learn channels which have source and receiver.
 - Source will send message to receiver and then Receiver will give Response as a Feedback.
+- For example we can see [this Image](https://github.com/Ujjwalsavaliya/ePortfolio/blob/31e78ae54409da630d6411285a2566a990a7759a/ICT/communication%20concept%20and%20strategy.jpg)
 2. Show confidence and skills in oral communications and presentations
 - In Oral communications and Presentation I had given a presentation which is [ICT](https://github.com/Ujjwalsavaliya/ePortfolio/blob/main/ICT/Cybersafety%20&%20Indigenous%20Australians.pptx?raw=true).
 3. Work effectively as part of a team
