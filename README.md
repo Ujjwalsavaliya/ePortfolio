@@ -6,9 +6,12 @@ Evidence is provided here of the following objectives:
 - For example we can see [this Image](https://github.com/Ujjwalsavaliya/ePortfolio/blob/31e78ae54409da630d6411285a2566a990a7759a/ICT/communication%20concept%20and%20strategy.jpg?raw=true)
 2. Show confidence and skills in oral communications and presentations
 - In Oral communications and Presentation I had given a presentation which is [ICT](https://github.com/Ujjwalsavaliya/ePortfolio/blob/main/ICT/Cybersafety%20&%20Indigenous%20Australians.pptx?raw=true).
+- In this presentation my Topic was Cyber safety and Indegeneous Australians.
+- I speak this Presentation about 10 minutes. Although, it was my first experience but still I tried my best to give presentation.
 3. Work effectively as part of a team
 - We had done work as a part of team in 2 weeks. 
 - It was a great engagement with my classmates.
+- while having group work we always encourage each other and supports all team member work.
 4. Communicate effectively in a professional context
 - Here is my Professional [Video Presentation](https://drive.google.com/file/d/1N2Uw3zowNr9xJ7QN-BVQsbPjyMjZ1G3u/view?usp=sharing).
 5. Define and demonstrate conflict management and resolution strategies.
